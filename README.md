@@ -1,6 +1,6 @@
 ![image](https://github.com/dianagorescu/World-of-Tanks/assets/94400419/d6184ed2-0f3a-4f49-99c7-4045e85a64cf)
 
-![image](https://github.com/dianagorescu/World-of-Tanks/assets/94400419/ceaaf449-d391-46ce-83ac-2361d86afc02)
+![image](https://github.com/dianagorescu/World-of-Tanks/assets/94400419/a2279023-c470-486b-a22a-635775dd879b)
 
 
 
